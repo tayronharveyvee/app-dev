@@ -1,2 +1,3 @@
 # app-dev
-My first repository
+**it has aliens and it uses technology and magic**  
+
