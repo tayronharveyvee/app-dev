@@ -1,6 +1,6 @@
 # My Favorite Series
  
-## The Summer I Turned Pretty
+## Guardians of the Galaxy
  
 ### Guardians of the Galaxy
  
